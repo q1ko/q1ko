@@ -1,4 +1,4 @@
-i'm q1ko (kiko)
+i'm q1ko (kiko)/francis
 
 - i am a university student studying cyber security and mathematics
 - i work on projects involving the games i play
